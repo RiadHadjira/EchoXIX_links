@@ -20,8 +20,9 @@ echo19_qr/
 
 ## Liens 
 
-- Instagram : [@echo_xix_](https://www.instagram.com/echo_xix_/)
+- Instagram : [@echo.xix](https://www.instagram.com/echo.xix/)
 - TikTok : [@echo.xix](https://www.tiktok.com/@echo.xix)
+- X : [@echo__xix](https://www.x.com/@echo__xix)
 
 ## QR Code
 
